@@ -1,0 +1,1 @@
+# TripleTen-7-Projeto_Analise_Negocio
